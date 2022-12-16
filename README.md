@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MaksimLabyneu.github.io/rsschool-cv/cv
